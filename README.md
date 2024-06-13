@@ -1,8 +1,9 @@
 - 👋 Hi, I’m @Sari-PuthiPonareay
-- 👀 I’m interested in new things
-- 🌱 I’m currently learning Machine Learning
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+I dun know what to say, if u know me u know who always sleep in the class and become the better one in the future.
+- Sleep to follow your dream and get up to make ur dream come true
+- Dare first Die later
+- Dun Limit your creativity
+- Create the room to grow dude
 
 <!---
 Sari-PuthiPonareay/Sari-PuthiPonareay is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
